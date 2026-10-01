@@ -1,6 +1,6 @@
-# how-to-change-your-windows-pc-and-laptop-from-windows-to-macOS-26
+# how-to-download-macOS-26 on windows pc & laptop
 
-the easiest way to change your pc and laptop from windows to macOS 26
+the easiest way to download macOS 26 on windows
 
 (please Follow the steps below to get your Mac or MacOS working properly.  
 
